@@ -1,4 +1,4 @@
-
+advanced Figma for macOS Panel | content-aware fill + blend modes offers the most advanced Figma for macOS panel, with content-aware fill and blend modes. Ideal for professional
 
 
 
